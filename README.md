@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI developement
 - 🌱 I’m currently learning Artificial Intellegence
 - 💞️ I’m looking to collaborate on Machine Leaning
-- 📫 How to reach me through mail: waghssswagh191992@gmail.com
+- 📫 How to reach me through mail: sswagh191992@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
